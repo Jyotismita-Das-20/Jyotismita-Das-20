@@ -6,6 +6,6 @@
 - 😄 Sleep more is my weakness
 - ⚡ I am a girl who like to search new & adjust with situation...
 -  Life is always changable , so try to flow with time. I want to share a story about me . 
-   Myself JSD(jyotismita Das) Who had a dream to be electronics engineer from childhood. But due to the thinking of a indian parents , I take admission in Btech(computer science).
+   Myself JSD(Jyotismita Das) Who had a dream to be an electronics engineer from childhood. But due to the thinking of a indian parents , I took admission in Btech(computer science).
    Now ,I am so happy with my branch to learn the lesson of life & the power of computer. I know , I can do it. I love a simple sentence "GOD IS MY BESTFRIEND"
  
