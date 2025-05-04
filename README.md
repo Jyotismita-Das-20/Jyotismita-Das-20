@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jyotismita-Das-20.
 - 👀 I’m interested in Full stack development.
-- 🌱 I’m currently learning "css" which is the part of front-end development. 
+- 🌱 I’m currently learning "MERN stack" which is the part of front-end development. 
 - 💞️ I’m looking to collaborate on ////no idea
 - 📫 You reach me through this git-hub account // E-mail : jyotismita2005@gmail.com // instagram I'd: jyotismitadas2024
 - 😄 Sleep more is my weakness
